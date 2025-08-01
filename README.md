@@ -1,6 +1,6 @@
 https://pronouns.cc/@Arad
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/20xtnw.png"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/e25a5b.png"/></p
                                                                                          
 <p align="center">
                                                           
@@ -13,7 +13,7 @@ https://pronouns.cc/@Arad
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. ) -:
 
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/ynwqj7.gif"/></p
+<p align="center"> <p align="center"><img src="https://files.catbox.moe/qgp57y.png"/></p
 
 ༒︎𖤐
 
@@ -24,9 +24,9 @@ https://pronouns.cc/@Arad
  <p align="center">  <p align="center"><img src="https://files.catbox.moe/i5dscr.png"/></p
 <p align="center"> 
 
-<p align="center"> "𝗧𝗵𝗲 𝘄𝗼𝗿𝗱𝘀 𝗳𝗿𝗼𝗺 𝘆𝗼𝘂𝗿 𝗽𝗮𝘀𝘁 𝗮𝗿𝗲 𝗳𝘂𝗻𝗱𝗮𝗺𝗲𝗻𝘁𝗮𝗹𝗹𝘆 𝗺𝗲𝗮𝗻𝗶𝗻𝗴𝗹𝗲𝘀𝘀." <p align="center"> 
+<p align="center"> "𝙷𝚒𝚜 𝐥𝐨𝐯𝐞 𝚠𝚊𝚜 𝚠𝚑𝚎𝚛𝚎 𝙸 𝐜𝐨𝐮𝐥𝐝𝐧'𝐭 𝚜𝚎𝚎" <p align="center"> 
 <p align="center"> 
-"𝗜 𝗹𝗲𝗮𝗿𝗻𝗲𝗱 𝘁𝗼 𝗳𝗹𝗶𝗻𝗰𝗵 𝗯𝗲𝗳𝗼𝗿𝗲 𝗜 𝗹𝗲𝗮𝗿𝗻𝗲𝗱 𝘁𝗼 𝘄𝗮𝗹𝗸." <p align="center"> 
+"𝙸 𝚑𝚊𝚍 𝚗𝚘 𝚒𝚍𝚎𝚊 𝚑𝚘𝚠 𝚝𝚘 𝚜𝚑𝚘𝚠 𝚖𝚢 𝐚𝐟𝐟𝐞𝐜𝐭𝐢𝐨𝐧, 𝐘𝐞𝐭 𝙸 𝚜𝚝𝚒𝚕𝚕 𝚖𝚎𝚊𝚗𝚝 𝚒𝚝" <p align="center"> 
 
 <p align="center">
   . . .
@@ -38,5 +38,5 @@ https://pronouns.cc/@Arad
 <p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/wtjlog.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/dj4k3y.png"/></p
 
