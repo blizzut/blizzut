@@ -1,4 +1,4 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/agwcn8.gif"/></p
+<p align="center">  <p align="center"><img src="https://64.media.tumblr.com/8d4f887c738cede84352b1fcb11f536d/34e1f1c2d848415a-ed/s540x810/f43fd9d3e30cf3153694352cda302961836f3945.pnj"/></p
                                                                                          
 <p align="center">
                                                           
@@ -11,9 +11,9 @@
 
 <p align="center"> 𝐈 𝐭𝐞𝐧𝐝 𝐭𝐨 𝐫𝐞𝐩𝐞𝐚𝐭 𝐚 𝐥𝐨𝐭 𝐨𝐟 𝐬𝐭𝐮𝐟𝐟, 𝐒𝐨𝐫𝐫𝐲 𝐢𝐟 𝐲𝐨𝐮 𝐞𝐧𝐝 𝐮𝐩 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 𝐫𝐚𝐭𝐡𝐞𝐫 𝐚𝐧𝐧𝐨𝐲𝐞𝐝 / 𝐭𝐢𝐫𝐞𝐝 𝐨𝐟 𝐢𝐭. ) -:
 
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/spew1e.gif"/></p
+<p align="center"> <p align="center"><img src="https://64.media.tumblr.com/c6403ab3ca222c357b8d2e52fd21cd22/704f4ace9de71c4b-cc/s100x200/5eb9265e041f4e31bfc8deb11c159744a062a99c.gif"/></p
 
-  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  https://pronouns.cc/@Arad
+  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎  ‎  ‎  ‎  https://pronouns.cc/@Arad
 
 ༒︎𖤐
 
@@ -21,7 +21,7 @@
 <p align="center"> 𝚘𝚗𝚕𝚒𝚗𝚎 = 𝚘𝚗 𝚝𝚊𝚋 , 𝚊𝚠𝚊𝚢 = 𝙰𝚏𝚔 / 𝚘𝚏𝚏𝚝𝚊𝚋 𝚎𝚗𝚝𝚒𝚛𝚎𝚕𝚢 / 𝚘𝚗 𝚝𝚊𝚋 𝚋𝚞𝚝 𝚗𝚘𝚝 𝚙𝚊𝚢𝚒𝚗𝚐 𝚌𝚕𝚘𝚜𝚎 𝚊𝚝𝚝𝚎𝚗𝚝𝚒𝚘𝚗 , 𝚋𝚞𝚜𝚢 = 𝚚𝚞𝚒𝚝𝚎 𝚋𝚞𝚜𝚢, 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐 , 𝚘𝚛 𝚐𝚊𝚖𝚒𝚗𝚐. . .  <p align="center"> 
 
 <p align="center">
- <p align="center">  <p align="center"><img src="https://files.catbox.moe/4kx8q3.png"/></p
+ <p align="center">  <p align="center"><img src="https://64.media.tumblr.com/fc68ab461409d6f822d969f0449f2d53/3bcbafb807e034d9-f5/s400x600/f3f8589f04cca816cce1bb6976565292ab10fa64.pnj"/></p
 <p align="center"> 
 
 <p align="center"> "𝐋𝐞𝐭 𝐦𝐞 𝐛𝐞 𝐲𝐨𝐮𝐫 𝐟𝐨𝐨𝐥." <p align="center"> 
@@ -38,5 +38,5 @@
 <p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/hxgyl2.png"/></p
+<p align="center">  <p align="center"><img src="https://64.media.tumblr.com/61bf1a539ceebdcbbd532c1ef70db5ca/34e1f1c2d848415a-b2/s540x810/e941bcbdcba4375c239e365731c60c307472350d.pnj"/></p
 
