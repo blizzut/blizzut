@@ -31,7 +31,7 @@
                                                                                         
 <p align="center"> 
   
-<p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬.<p align="center">
+<p align="center"> 𝐈 𝐦𝐞𝐚𝐧 𝐭𝐡𝐢𝐬 𝐰𝐢𝐭𝐡 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐫𝐞𝐬𝐩𝐞𝐜𝐭, 𝐃𝐎𝐍'𝐓 𝐭𝐚𝐤𝐞 𝐢𝐧𝐬𝐩𝐢𝐫𝐚𝐭𝐢𝐨𝐧 𝐧𝐨𝐫 𝐜𝐨𝐩𝐲 𝐦𝐲 𝐬𝐤𝐢𝐧𝐬 𝐨𝐫 𝐩𝐚𝐠𝐞𝐬 𝐨𝐫 𝐈 𝐰𝐢𝐥𝐥 𝐬𝐤𝐢𝐧 𝐮 <p align="center">
 <p align="center"> <p align="center"> 
 
 <p align="center">  <p align="center"><img src="https://files.catbox.moe/wjh0pe.png"/></p
